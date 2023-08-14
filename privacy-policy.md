@@ -1,3 +1,5 @@
+Privacy Policy
+
 Last Update Date: 08/14/2023
 
 This privacy policy explains the information collected, used, and shared by Flux VPN provided by KodFlux. This policy is designed to help you understand the privacy practices of the Application.
